@@ -1,1 +1,10 @@
-chnagement
+chnage+mentsdcwx 
+c<xyjwkYQC<XZ
+qdS<CPZEDQc<xqz
+dscz
+dsc<
+x
+qsd
+<cx
+qs
+x>>>>>

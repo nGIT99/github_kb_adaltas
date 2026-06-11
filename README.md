@@ -1,1 +1,1 @@
-chnagement
+chnage+ment
